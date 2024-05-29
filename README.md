@@ -23,6 +23,8 @@ I want :
 ![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTI0Y2phMzFpdnNndjM2dzZsYm4zYmY5NGhwMjBoZHVzMGxmbnkwcSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/IkbIUVOpV12aA/giphy.gif)
 
 
+Dans les montagnes brumeuses de Skarhold, un jeune homme nommé Eirik découvrit qu'il possédait le pouvoir ancestral des Dragonborn. Chaque fois qu'il respirait profondément, il pouvait sentir la chaleur des dragons anciens résonner dans ses veines. Lorsqu'un sombre dragon menaça son village, Eirik sut que son destin était de se dresser contre cette créature légendaire.
+
 la sera di luna piena,
 andate al pollaio, quando l'olocausto indica la mezzanotte in punto!
 Strappate tre piume al gallo. Non una o quattro! Tre piume!
